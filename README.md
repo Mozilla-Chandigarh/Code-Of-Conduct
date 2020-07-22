@@ -91,35 +91,35 @@ This code of conduct and its related procedures also applies to unacceptable beh
 
 ## 10. Contact info
 
-### Abhyansh Agrahari (Lead) 
+### [Abhyansh Agrahari (Lead)](https://github.com/jam-abhyansh06) 
 
 abhyansh.5959@gmail.com
 
-### Hitik Saini (lead)
+### [Hitik Saini (Lead)](https://github.com/hitiksaini)
 
 hitik9045saini@gmail.com
 
-### Prakhar Srivastava (lead)
+### [Prakhar Srivastava (Lead)](https://github.com/Prakhar2505)
 
 prakharsrivastava725@gmail.com
 
-### Shibam Dhar (Executive Team Member)
+### [Shibam Dhar (Executive Team Member)](https://github.com/soulhunter10737)
 
 shibam.dipu@gmail.com
 
-### Shivani Kumari (Executive Team Member)
+### [Shivani Kumari (Executive Team Member)](https://github.com/Shivani1337)
 
 connectshivani1337@gmail.com
 
-### Nishchal Sangai (Executive Team Member)
+### [Nishchal Sangai (Executive Team Member)](https://github.com/nishchalsangai)
 
 nishchalsangai@gmail.com
 
-### Kashish Garg (Executive Team Member)
+### [Kashish Garg (Executive Team Member)](https://github.com/kashish027)
 
 gargkashish27@gmail.com
 
-### Shubham Kumar (Executive Team Member)
+### [Shubham Kumar (Executive Team Member)](https://github.com/imskr)
 
 Shubhamkrai123@gmail.com
 
