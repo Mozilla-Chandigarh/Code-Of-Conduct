@@ -103,23 +103,23 @@ hitik9045saini@gmail.com
 
 prakharsrivastava725@gmail.com
 
-### [Shibam Dhar (Executive Team Member)](https://github.com/soulhunter10737)
+### [Shibam Dhar (Executive Member)](https://github.com/soulhunter10737)
 
 shibam.dipu@gmail.com
 
-### [Shivani Kumari (Executive Team Member)](https://github.com/Shivani1337)
+### [Shivani Kumari (Executive Member)](https://github.com/Shivani1337)
 
 connectshivani1337@gmail.com
 
-### [Nishchal Sangai (Executive Team Member)](https://github.com/nishchalsangai)
+### [Nishchal Sangai (Executive Member)](https://github.com/nishchalsangai)
 
 nishchalsangai@gmail.com
 
-### [Kashish Garg (Executive Team Member)](https://github.com/kashish027)
+### [Kashish Garg (Executive Member)](https://github.com/kashish027)
 
 gargkashish27@gmail.com
 
-### [Shubham Kumar (Executive Team Member)](https://github.com/imskr)
+### [Shubham Kumar (Executive Member)](https://github.com/imskr)
 
 Shubhamkrai123@gmail.com
 
