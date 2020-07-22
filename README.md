@@ -99,27 +99,27 @@ abhyansh.5959@gmail.com
 
 hitik9045saini@gmail.com
 
-### Mr. Prakhar Srivastava (lead)
+### Prakhar Srivastava (lead)
 
 prakharsrivastava725@gmail.com
 
-### Mr. Shibam Dhar (Executive Member)
+### Shibam Dhar (Executive Team Member)
 
 shibam.dipu@gmail.com
 
-### Miss. Shivani Kumari (Executive Member)
+### Shivani Kumari (Executive Team Member)
 
 connectshivani1337@gmail.com
 
-### Nishchal Sangai (Executive Member)
+### Nishchal Sangai (Executive Team Member)
 
 nishchalsangai@gmail.com
 
-### Kashish Garg (Executive Member)
+### Kashish Garg (Executive Team Member)
 
 gargkashish27@gmail.com
 
-### Shubham Kumar (Executive Member)
+### Shubham Kumar (Executive Team Member)
 
 Shubhamkrai123@gmail.com
 
