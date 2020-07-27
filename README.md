@@ -123,6 +123,10 @@ gargkashish27@gmail.com
 
 Shubhamkrai123@gmail.com
 
+### [Anustup Mukherjee (Executive Member)](https://github.com/Anustup900)
+
+anustup.mukherjee99@gmail.com
+
 
 
 
